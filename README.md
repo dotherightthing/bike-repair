@@ -14,6 +14,7 @@
 ## Repair Stands
 
 * [FEEDBACK SPORTS - Sport Mechanic Repair Stand](https://iride.net.nz/products/feedback-sports-sport-mechanic-repair-stand?_pos=3&_sid=eb1371ef2&_ss=r)
+* [Torpedo7](https://www.torpedo7.co.nz/shop/bike/workstands)
 
 ## Disc Brakes
 
